@@ -1,6 +1,8 @@
 # lyrics-dia-2
 
-Link: https://www.youtube.com/playlist?list=PLgl5Y-YcJNYvLbzXwvsNgH-0ALx5-4Bs2
+Link Karaoke: https://www.youtube.com/playlist?list=PLgl5Y-YcJNYvLbzXwvsNgH-0ALx5-4Bs2
+Link Lyrics: https://www.youtube.com/playlist?list=PLgl5Y-YcJNYuu4JGVbv9RQEOSbvYwXRwW
+
 # JVKE - Golden Hour
 [Verse 1]
 It was just two lovers
