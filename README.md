@@ -4,6 +4,8 @@ Link Karaoke: https://www.youtube.com/playlist?list=PLgl5Y-YcJNYvLbzXwvsNgH-0ALx
 
 Link Lyrics: https://www.youtube.com/playlist?list=PLgl5Y-YcJNYuu4JGVbv9RQEOSbvYwXRwW
 
+Lyrics Doc: https://docs.google.com/document/d/1wcA43EyUFgPEpPLSarUFkbnqrv9I2m_A_huF5lCcfno/edit?usp=sharing
+
 # JVKE - Golden Hour
 
 [Verse 1]
